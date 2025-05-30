@@ -1,0 +1,1 @@
+I am Czyrell Gwen R. Abelita from BSIT 3A. This is my simple hamster themed to do app. 
